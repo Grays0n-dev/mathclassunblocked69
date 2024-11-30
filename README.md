@@ -1,1 +1,1 @@
-if u make this your own, i will report you on github
+DO NOT COPY THE UNBLOCKER WITHOUT MY PERMISSION
